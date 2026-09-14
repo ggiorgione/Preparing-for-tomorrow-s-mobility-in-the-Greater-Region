@@ -5,8 +5,8 @@
 
 ## Overview
 
-These are the scientific references used to build the poster for:
-**TEMPS DE TRAJET – MOBILITÉS AU QUOTIDIEN** presented the 23 · 09 · 2026
+These are the scientific references used to build the poster for:<br>
+TEMPS DE TRAJET – MOBILITÉS AU QUOTIDIEN presented the 23 · 09 · 2026
 
 ---
 
